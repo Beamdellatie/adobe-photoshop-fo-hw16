@@ -1,4 +1,4 @@
-
+Enhance Adobe Photoshop for macOS with Adobe Photoshop for macOS updated Action - color correction and custom brushes, the #1 action. Includes color correction and custom brushes
 
 
 
